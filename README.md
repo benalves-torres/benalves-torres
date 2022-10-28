@@ -1,5 +1,5 @@
 ### Oii! Eu sou o Ben! :raising_hand:
-<sub> ~~não é Benjamin, nem Bento, é Ben mesmo!~~ :satisfied:
+<sub> ~~não é Benjamin, nem Bento~~ é Ben mesmo! :satisfied:
   
   
   
