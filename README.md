@@ -1,14 +1,14 @@
-## Oii! Eu sou o Ben! :raising_hand:
+# Falaê!!! Sou o Ben! :raising_hand:
 <sub> ~~não é Benjamin, nem Bento~~ é Ben mesmo! :satisfied:
   
  
-  ### ***Um pouco sobre mim:***  
+  ## ***Um pouco sobre mim:***  
   
   💻 Product Manager no iFood  
   🌎 Argentino/Brasileiro  
-  🧑‍🎓 Estudando de CyberSec na FATEC  
+  🧑‍🎓 Estudando CyberSec na FATEC  
   🐱 Pai de dois gatos e um 🐶  
-  🏳️‍⚧️ Homem trans, apaixonado por quem eu sou
+  🏳️‍⚧️ Homem trans
    
   
   
