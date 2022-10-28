@@ -8,8 +8,8 @@
   🌎 Argentino/Brasileiro  
   🧑‍🎓 Estudando CyberSec na FATEC  
   🐱 Pai de dois gatos e um 🐶  
-  🏳️‍⚧️ Homem trans
-   
+  🏳️‍⚧️ Homem trans  
+  🏋️‍♀️ Gosto muito de esporte, faço academia e já lutei BJJ
   
   
 #### ***Me encontre por aqui*** ⤵️
